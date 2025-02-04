@@ -8,7 +8,7 @@
   <img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExZTk4dzIxYnIzeXVzNzByYmJ3NXZ6cTl2ejM1dXl5a2Y5cmJ5ZnZ6bSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/RSlwWEUkEw2A9YGV6Y/giphy.gif#left"/>
 </p>
 
-<p align="center"> literaly jinx, futaba &&. akechi irl <p align="center">
+<p align="center"> literaly jinx, futaba &&. akechi irl (also ren/akira) <p align="center">
 
 
 <p align="center">
