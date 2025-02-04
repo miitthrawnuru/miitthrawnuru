@@ -10,6 +10,7 @@
 
 <p align="center"> literaly jinx, futaba &&. akechi irl <p align="center">
 
+
 <p align="center">
   <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExdXRqMzU5c2R0MHdqd2NpdXFnbzVrZGQyeWtpY3picGYxN2I1OXpjbyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/eRgyWnONa0HOLzUgnL/giphy.gif"/>
 </p>
